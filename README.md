@@ -1,4 +1,4 @@
-## This questions are due before your next discussion section (Week6).
+## This questions are due next discussion section (Week6).
 
 1. Describe the Biology of your project? (one paragraph max).  
 
